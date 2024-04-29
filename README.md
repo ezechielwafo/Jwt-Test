@@ -1,1 +1,1 @@
-"Helo la familla quoi de neuf suis sur GitUp"
+"j'apprend plus  vite qu'un genie Good Bay"
